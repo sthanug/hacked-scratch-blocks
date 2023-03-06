@@ -1,1 +1,1 @@
-# hacked-scratch-blocks
+# hacked scratch blocks that are rare
